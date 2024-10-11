@@ -1,2 +1,2 @@
-- Roy / Vorkuta
+- Roman / Vorkuta
 - ...
